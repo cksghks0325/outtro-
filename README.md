@@ -6,4 +6,4 @@
 
 ### 던파 퇴마사
 
-[![던파](https://i1.ruliweb.com/img/17/02/06/15a11324bd132287e.jpg)](https://youtu.be/2zqPcTiwkcc)]
+[![던파](https://i1.ruliweb.com/img/17/02/06/15a11324bd132287e.jpg)](https://youtu.be/2zqPcTiwkcc)
